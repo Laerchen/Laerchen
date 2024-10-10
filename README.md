@@ -1,5 +1,4 @@
 -  Hi, ich bin @Laerchen 😄,
--  ich programmiere vorallem mit Java.
 -  Und ich weis nicht was ich hier noch hinschreiben kann...
 -  c:
 
