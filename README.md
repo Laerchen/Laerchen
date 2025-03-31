@@ -1,5 +1,5 @@
 -  Hi, ich bin @Laerchen 😄,
--  Und ich weis nicht was ich hier noch hinschreiben kann...
+-  Und ich weiss nicht was ich hier noch hinschreiben kann...
 -  c:
 
 
